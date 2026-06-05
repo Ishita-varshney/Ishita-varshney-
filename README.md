@@ -1,2 +1,2 @@
-# Ishita-varshney-
+# Ishita-varshney
 My GitHub Profile README
